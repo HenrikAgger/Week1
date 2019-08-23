@@ -1,2 +1,2 @@
 # Week1
-Assignments week1
+Tirsdagsopgaven ligger i week1 -> Tuesday -> 
